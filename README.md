@@ -17,7 +17,7 @@
 
 ⠀⠀⠀ ݃ ֪֪֪ ̣̣
 #  ׁ⠀⠀#⠀⠀B⠀⠀Y⠀⠀I
-cudcomf friendly!! it makes us feel less lonely if u come sit with ud *sniffles* w2i are welcomed!💗
+cudcomf friendly!! it makes us feel less lonely if u come sit with us *sniffles* w2i are welcomed!💗
 
 before anything else, we kindly ask that you learn a bit about systems before interacting. this isn’t about being “quirky” or “cool”, it’s a real disorder that can affect identity, relationships, and daily life. if you’re unsure, please read our rentry before making assumptions.
 
