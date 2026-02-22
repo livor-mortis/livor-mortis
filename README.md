@@ -12,3 +12,5 @@
 ⠀⠀⠀⠀⠀<i>'cause you're⠀⠀s t u c k  
 ⠀⠀⠀⠀⠀⠀to the⠀⠀g r o u n d  
 ⠀⠀⠀⠀⠀⠀you have to ⠀⠀s t a y.</i>
+
+<img width="402" height="504" alt="Untitled49_20260222134517" src="https://github.com/user-attachments/assets/8f2dccf2-b823-4640-bdca-8d4a409772d7" />
