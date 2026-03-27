@@ -1,4 +1,4 @@
-<img width="480" height="400" src="https://github.com/user-attachments/assets/02792f8f-23ab-440d-b8f9-3af325eda1cd" align="left"/>
+
 
 <br>
 
@@ -14,7 +14,7 @@ Trauma`g`enic `O`SDD-`1`B system
 ⠀⠀⠀⠀⠀⠀to ⠀the⠀⠀g r o u n d  
 ⠀⠀⠀⠀⠀⠀you ⠀have⠀ to ⠀⠀s t a y.</i>
 
-<img width="402" height="504" alt="Untitled49_20260222134517" src="https://github.com/user-attachments/assets/8f2dccf2-b823-4640-bdca-8d4a409772d7" align="right"/>
+
 
 ⠀⠀⠀ ݃ ֪֪֪ ̣̣
 #  ׁ⠀⠀#⠀⠀B⠀⠀Y⠀⠀I
@@ -32,7 +32,7 @@ we also struggle with attachment and detachment issues :( sometimes we may dista
 
 if you're willing to be patient and understanding.. maybe be our friend if you're interested! ^w^
 
-<img width="402" height="504" alt="Untitled47_20260221193810" src="https://github.com/user-attachments/assets/203fa92d-c818-4e89-86c9-5e78987f3524" align="left"/>
+
 
 ⠀⠀⠀ ݃ ֪֪֪ ̣̣
 #  ׁ⠀#⠀BOUNDARIES
